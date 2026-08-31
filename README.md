@@ -1,3 +1,4 @@
+<img width="1919" height="1079" alt="Screenshot 2026-08-18 192957" src="https://github.com/user-attachments/assets/06b7702a-add8-4b6b-b45a-0bf90f624285" />
 <div align="center">
 
 # 𓅓 𝐔 𝐂 𝐇 𝐈 𝐇 𝐀  𝐈 𝐓 𝐀 𝐂 𝐇 𝐈 𓅓
