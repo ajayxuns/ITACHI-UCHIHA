@@ -1,8 +1,4 @@
-
-
 https://github.com/user-attachments/assets/76374c97-5e41-42b2-88a6-b8e95cc0333f
-
-
 
 # 𓅓 𝐔 𝐂 𝐇 𝐈 𝐇 𝐀  𝐈 𝐓 𝐀 𝐂 𝐇 𝐈 𓅓
 ### *覚醒 — "You are already caught in my Genjutsu."*
