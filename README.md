@@ -1,3 +1,6 @@
+![Uploading Screenshot 2026-08-18 192957.png…]()
+
+<div align="center">
 
 
 # 𓅓 𝐔 𝐂 𝐇 𝐈 𝐇 𝐀  𝐈 𝐓 𝐀 𝐂 𝐇 𝐈 𓅓
